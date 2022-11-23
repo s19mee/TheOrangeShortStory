@@ -7,3 +7,5 @@ I lived in a cold land called Ice jungle.  It was very beautiful and cold at the
 <br>We won.  I talked to the governors of each tribe about the wild raspberries and it was decided to exile them to a distant land. In that distant land, we built a school, a house and a church for the exiled so that they could move towards civilization and stop being barbaric.  We returned the lost lands to their owners and established a city called orangesland for the oranges to live in peace. </p>
 
 --- END ---
+<br/>
+Helped by Google Translate
